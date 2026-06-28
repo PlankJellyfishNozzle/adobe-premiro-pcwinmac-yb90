@@ -1,4 +1,4 @@
-# 
+# Instantáneo Adobe Premiere Pro herramientas para Mac OS | Actualizado Adobe Premiere Pro herramientas para PC Windows. Con grabación y efectos visuales — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
